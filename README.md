@@ -1,6 +1,6 @@
 # PASTA MET ROMIGE TOMATENSAUS
 
-![Pasta met romige tomatensaus](Past.jpg)
+![Pasta met romige tomatensaus](past.jpg)
 
 ### Pasta met romige tomatensaus – Zelf een lekkere pasta met romige tomatensaus maken? Met dit recept van Wessel zet je in 20 minuten een heerlijke maaltijd op tafel.
 
